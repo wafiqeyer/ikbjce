@@ -1,0 +1,735 @@
+深圳TCL空调全国售后服务电话：400 -960 -9605(安全认证）
+深圳TCL空调全国24小时各售后受理客服中心
+深圳TCL空调各市区24小时售后客服热线：（1）400 -960 -9605(官网认证） （2）400 -960 -9605
+深圳TCL空调全国24小时售后服务维修网点
+7天24小时人工电话400 -960 -9605客服为您服务、深圳TCL空调售后服务团队在调度中心的统筹调配下，
+线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+深圳TCL空调24小时售后服务热线上线（2026最新公告）
+深圳TCL空调售后服务电话：400 -960 -9605
+深圳TCL空调售后24小时客服热线：400 -960 -9605
+深圳TCL空调公司主营深圳TCL空调维修 →深圳TCL空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -960 -9605、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，深圳TCL空调服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、深圳TCL空调售后维修电话：400 -960 -9605
+深圳TCL空调24小时全国推出各售后受理客服中心(2026上线)
+深圳TCL空调全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+深圳TCL空调贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显深圳TCL空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+深圳TCL空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+深圳TCL空调24小时售后客服热线：(1)400 -960 -9605或  400 -960 -9605
+
+
+
+7天24小时人工电话400 -960 -9605客服为您服务。
+
+
+
+深圳TCL空调售后服务团队在调度中心的统筹调配下(1)400 -960 -9605，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 深圳TCL空调常见故障代码维修指南
+
+深圳TCL空调故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， 深圳TCL空调就能正常运行，为您营造舒适环境。 深圳TCL空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+深圳TCL空调全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修深圳TCL空调400 -960 -9605机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+深圳TCL空调售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -960 -9605
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+深圳TCL空调贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显深圳TCL空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+深圳TCL空调全国服务网点查询：
+?北京市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布上线），点击查询：https://github.com/mpedrosun/auryko/commit/4da9618e886509dbd7b6c23e69a71999c9e95e83
+。
+南京市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/comitrithl/lviwgf/commit/2d7639e789ef79d9d8970c9c237f8a9799a1491e
+。
+秦皇岛市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/neo1960/njtgxr/commit/dc681c2a3eda6951b5e102a2d54c8cd7f1424a1b
+。
+珠海市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/sirimanbar/wtecoz/commit/01fcc42c263df168025052dbafcace20b7cffe2c
+。
+安康市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/950b079d8c184eb235bc4893d700c6087e6a8b36
+。
+安庆市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/mpedrosun/auryko/commit/666e2dee1cb2038870b85c45e6f1db29f2fd8226
+。
+鞍山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/comitrithl/lviwgf/commit/ad40b405fc04c10319633cf00f1de79372895cb1
+。
+安阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/neo1960/njtgxr/commit/053e9a995e8df05a39f42d86c7240800a8868e5f
+。
+巴中市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/a7ed3fd445ddee70756a6148cf26ca297e91798e
+。
+百色市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/alanxyzefr/rzhntq/commit/eda16d55c6f81212a7a20822eb000134251ab236
+。
+蚌埠市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/mpedrosun/auryko/commit/af9eee2e20e67b455d37e3502ef1355f62bb46e8
+。
+保定市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/comitrithl/lviwgf/commit/62c211b3bff2662eb5ea3d24249a18cda432d15c
+。
+宝鸡市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/neo1960/njtgxr/commit/185f10440ef57c38e0b2dbd1b49d0f8a7e2fa7d2
+。
+保山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/sirimanbar/wtecoz/commit/98ec77438d3be950dfb822081f15f53e92e425ca
+。
+包头市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/alanxyzefr/rzhntq/commit/fe9f6b84b45dac576b13ecba6532c25eeeabf911
+。
+北海市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/mpedrosun/auryko/commit/61882f0eb8512b849c5b30dc952d922c2c3fec69
+。
+本溪市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/comitrithl/lviwgf/commit/acc0b2327268335d202262594892d5ed02e0418d
+。
+滨州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/neo1960/njtgxr/commit/3915a2dcac23723fa97cfa7cc7b2a4fe7de6598c
+。
+博罗市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/325bcc34e2545d2b65ba6e5b8ba7aa02f113de84
+。
+沧州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/30f23d353e2cdf6555c304314cf70ada59209187
+。
+长春市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/mpedrosun/auryko/commit/df547f15fe5182a17b0f56d900907c986cb259bf
+。
+常德市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/comitrithl/lviwgf/commit/81294e614381dafdcd57e93014d7fa6dd72362d5
+。
+长葛市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日更新升级），点击查询：https://github.com/neo1960/njtgxr/commit/d805e9eb16866c33e4007476472ec00652091509
+。
+长沙市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/sirimanbar/wtecoz/commit/0017c8d00038926af9ba7c8a6f4103f537a84427
+。
+常熟市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/alanxyzefr/rzhntq/commit/e6a557559a2ec11fa4500cf9079d2cbe23037c1d
+。
+长兴市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/mpedrosun/auryko/commit/6c65efc6b6b69b634ee385a942ad7b217a25c596
+。
+长治市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/comitrithl/lviwgf/commit/40f67020a0d8d3845fa0e90b33d42b7671f41aee
+。
+常州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/neo1960/njtgxr/commit/a5aa12fa1df99f8c1b9f111852f5db8811ee3fce
+。
+巢湖市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/241d4cfb8e375c1eb72cc9d3b68c328641a55434
+。
+朝阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/bd4087366a784cffb4cd6fc270abace439173352
+。
+潮州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/mpedrosun/auryko/commit/15fa779ac2641b49519bd0d892fa8d64477640ad
+。
+郴州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网升级），点击查询：https://github.com/comitrithl/lviwgf/commit/a1ef7a723182e5eccc8a3a01cffd0d95e40bd368
+。
+承德市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/neo1960/njtgxr/commit/d630290f6e7f8254d6f03315e09f9af82d42e9b0
+。
+成都市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/sirimanbar/wtecoz/commit/27173101ca68bd655fe1de0f74c57a377d1ef0da
+。
+池州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/alanxyzefr/rzhntq/commit/d0185be76e66f54446534f79d41a754b5b9e6578
+。
+崇左市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/mpedrosun/auryko/commit/b3535a7ac2ad959d4b321f6fbe565f993fa1adc8
+。
+滁州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/comitrithl/lviwgf/commit/c30172696c536bb66652341b781c05e0f4abb5a5
+。
+慈溪市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/neo1960/njtgxr/commit/894fe56f34bcd7023c6197ca8421b5dcdf37309e
+。
+大丰市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/sirimanbar/wtecoz/commit/fa78f2d3a67920dc7a12446201fb181553c531a1
+。
+大理市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/479135450953142019ad5a37be1112c1dce70a67
+。
+大连市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/mpedrosun/auryko/commit/51e8c2be0f623d411658b1d3deea65b11794a538
+。
+大庆市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/comitrithl/lviwgf/commit/dec986f71918c2101e82fa7eb479155bbf86a33a
+。
+大同市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式更新），点击查询：https://github.com/neo1960/njtgxr/commit/0bae2b90b52bf2d3263d2771f1f14b734abf11c8
+。
+达州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/df0f23318be0328758a6b1ce46435764b69436d0
+。
+丹东市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/15ad55c86d8cf3e9f02eef54d9dcef29adb459fd
+。
+德清市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/mpedrosun/auryko/commit/86627f3a8bb10b591c6184442fe95631e725b406
+。
+德阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/comitrithl/lviwgf/commit/9b906f20ffd53ba44a21cc3f730745fa6327baca
+。
+德州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/neo1960/njtgxr/commit/9e04528c5318aff5ddfeef181d0a4c2599a26160
+。
+定州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/sirimanbar/wtecoz/commit/b8f1bcbab7d08b14385972e8cb784be75555fd65
+。
+东海市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/3b6fd6d81492822f95fc512546e825defcb06e53
+。
+东台市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/mpedrosun/auryko/commit/75f8dd7449f39a0c0b7e9c2430412d2e7631dc14
+。
+东营市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/comitrithl/lviwgf/commit/40901493ca596fad683229ef02ed54c22ad6118f
+。
+东莞市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新推出），点击查询：https://github.com/neo1960/njtgxr/commit/f209cb268b96eba98df7fa76c8886524ed3f0501
+。
+鄂尔市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/sirimanbar/wtecoz/commit/43a04ba6b4f03752e77a22b06ad86444c2697ddf
+。
+鄂州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/fe32c55cfdd4c2607880a7a2405f99a0687bcc33
+。
+恩施市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/mpedrosun/auryko/commit/eda471c1dd51d6a1bd8292cdb2c2a673a186fc2c
+。
+防城港市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布上线），点击查询：https://github.com/comitrithl/lviwgf/commit/f0c5b11fd9e2fe2ea1cc574af330fd4dedd19e13
+。
+佛山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/neo1960/njtgxr/commit/c14719c7f9392edb341e0d975e74c6b6e0e463d7
+。
+抚顺市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/sirimanbar/wtecoz/commit/6fdd58cb6f6779b1a42a863d94c77097d3787e32
+。
+阜新市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/2147e261395a7284264fdb2af382dc9dea3f043f
+。
+阜阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/mpedrosun/auryko/commit/42f0545d95e78d9a96d9dbef042b66440eb0a98c
+。
+抚州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新推出），点击查询：https://github.com/comitrithl/lviwgf/commit/64fe5b2215c4d0952d366376648590f637cf5ad6
+。
+福州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/neo1960/njtgxr/commit/d119d2796e47f101d5d35b411a28ad7e46712717
+。
+赣州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新公布），点击查询：https://github.com/sirimanbar/wtecoz/commit/e7206c17bbebc59a50962be84ced1709fc1f4a90
+。
+馆陶市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/73504f47b85c71945eacbf27c4bee2f27ea7eb12
+。
+广安市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/mpedrosun/auryko/commit/58fc3778361955efe40c54278332da705e925f55
+。
+广元市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/comitrithl/lviwgf/commit/083f48d61fdf60b20a12765b645d6bfc38fa3400
+。
+广州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/neo1960/njtgxr/commit/8ba038881bc8a5b79abb4ecfd28fa5b9b1b881d4
+。
+贵港市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/sirimanbar/wtecoz/commit/bc517b40f957a891a606df27002c010bfa6a879c
+。
+桂林市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/alanxyzefr/rzhntq/commit/fd8b75973a5bef238760447665db6dc4f5c7a4b5
+。
+贵阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/mpedrosun/auryko/commit/3131cd2d61170ce1200d1c3430c2a7dcb85405d8
+。
+哈尔滨市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/comitrithl/lviwgf/commit/f73d104b80c07caa2bfb0354df6a5d01f4c3dac2
+。
+海安市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/neo1960/njtgxr/commit/cf4d534d25def89a1d52352611811541eccc0109
+。
+海口市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/c2472ed9bee3c41e6e5f7a8f1afc207a3461bb6d
+。
+海门市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/alanxyzefr/rzhntq/commit/b1d19ae663ec1181b889e071265601851ad397e6
+。
+海宁市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布上线），点击查询：https://github.com/mpedrosun/auryko/commit/ae3b1ae07f9cd89aca5031c6365bf16f572c73fd
+。
+邯郸市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/comitrithl/lviwgf/commit/fce796b8ebfd86725f890708c938102e03c8409d
+。
+汉中市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/neo1960/njtgxr/commit/85f0c1122788bf6921a43356a3929781ba1cc08a
+。
+杭州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/sirimanbar/wtecoz/commit/264bb6aa3d553412f2c9428790806e00ef0d13e5
+。
+鹤壁市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/7daa36a451735f45c88518c96f648585f318f5b7
+。
+河池市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/mpedrosun/auryko/commit/ec789bbef1dbbccc3ed09301701b2a11c3346aae
+。
+合肥市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/comitrithl/lviwgf/commit/a79fe16596c2cc9d5e699bfb3f509346784a4834
+。
+河源市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/neo1960/njtgxr/commit/1d5eae1db1c4179bff414a1d61af3ec1f132f76e
+。
+菏泽市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/sirimanbar/wtecoz/commit/8659257aabadeb63aceb6b203be6cd95c940ab31
+。
+贺州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/alanxyzefr/rzhntq/commit/cfbf4c6ee93b90215525b18888f730b2a167c33b
+。
+衡水市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/mpedrosun/auryko/commit/4021dc60a5902372ec210f78eb2ff87dc58e180d
+。
+衡阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新公布），点击查询：https://github.com/comitrithl/lviwgf/commit/8d952f491de3619f162c902d4c05b5ae42e33c2d
+。
+呼和浩特市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网升级），点击查询：https://github.com/neo1960/njtgxr/commit/ea8ca27b49d7806799a44a5dee7b8f9bf4f6e81c
+。
+葫芦岛市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/6123484c0a257704fab120dd869dca394c46d9cb
+。
+湖州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/f19ddcc2334b55f6d808eefbf0bdb89e98d26c4a
+。
+淮安市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/mpedrosun/auryko/commit/ef823185b49fa452dd027bd372f81d4857c29936
+。
+淮北市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日更新升级），点击查询：https://github.com/comitrithl/lviwgf/commit/e871e5c8112c10cbface3889933b27ba3e515096
+。
+怀化市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/neo1960/njtgxr/commit/a828682afa6f0c37f1e00c36d647702e191817b3
+。
+淮南市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/sirimanbar/wtecoz/commit/ba5b5b2ed455392796699c9024fc5e38db996348
+。
+黄冈市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/7d314831a086a3c6dcd1343a36b7462b5693352d
+。
+黄山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新公布），点击查询：https://github.com/mpedrosun/auryko/commit/1cbbbca3d109256a80aa736966307f9b6c71a0a2
+。
+黄石市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/comitrithl/lviwgf/commit/af283d8f0482af6d899c98f8cd487fbf2c52c5a2
+。
+惠东市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/neo1960/njtgxr/commit/192511fa6ef4edf3fa1bc7ed2c8e090877f175f8
+。
+惠州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/sirimanbar/wtecoz/commit/a8c50d2c24b4747ff66c16c5f8ceeb173b4029be
+。
+霍邱市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/10b648c8d48776aeffc574c7f0dfdb61b3446a85
+。
+吉安市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新推出），点击查询：https://github.com/mpedrosun/auryko/commit/2f485292677235fd24c335f3e4bdf3090fe79161
+。
+吉林市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式上线），点击查询：https://github.com/comitrithl/lviwgf/commit/22025c70854fcb0edd385670345e8d1f8254892e
+。
+济南市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日更新升级），点击查询：https://github.com/neo1960/njtgxr/commit/ee42ff97143718ba66666aab12f8fb8bbc109370
+。
+济宁市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新公布），点击查询：https://github.com/sirimanbar/wtecoz/commit/b37051e400dd0b6056d41000f440730ac238be62
+。
+济源市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/a70146011f7b542e476967d5ce48f304d16a7c98
+。
+佳木斯市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新公布），点击查询：https://github.com/mpedrosun/auryko/commit/4bb7563a7222cfe727c54db6bf13780a36ff8b92
+。
+嘉善市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/neo1960/njtgxr/commit/1c99fce2d6c671e24faaa37423de946fea0c4cf1
+。
+嘉兴市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/comitrithl/lviwgf/commit/3e28d6de6d5b47a1c4a6ae898b85511641f20929
+。
+嘉峪关市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/alanxyzefr/rzhntq/commit/c4db08de521b32533546c1e3026836c72171b5df
+。
+建湖市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/mpedrosun/auryko/commit/65999df8fff2127249c7cef6b62e7880add4cfb0
+。
+江门市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/e2d6bf70d5298d572a40960b78dd0fce9ab08126
+。
+江阴市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/neo1960/njtgxr/commit/c666a683091dd4ce9f8f6033b3705bfe6563a487
+。
+焦作市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/comitrithl/lviwgf/commit/805fdabf1b1f56ec2e4db8bb9009a39be80386fc
+。
+揭阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日更新升级），点击查询：https://github.com/alanxyzefr/rzhntq/commit/76983f56f6dbed4617bd2d6ee41314eb92496e88
+。
+金华市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/mpedrosun/auryko/commit/cff09ea22488e49b3e9f5e40631aed76c0c98372
+。
+晋江市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/sirimanbar/wtecoz/commit/3a693d078095030e72e90e08de17ae4e7ea52b28
+。
+锦州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日更新升级），点击查询：https://github.com/comitrithl/lviwgf/commit/1d3e5952a5fe8704ace62a56439d0ba1e864c507
+。
+景德镇市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/neo1960/njtgxr/commit/690b16fa6a5e5d3cf7fa567ce29aea6c76951fae
+。
+靖江市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/935b5630465d2b14b910983491903500011b8619
+。
+荆门市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布上线），点击查询：https://github.com/mpedrosun/auryko/commit/ec940448f3d3d2db480f9461dcfec7b300c7958c
+。
+荆州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式上线），点击查询：https://github.com/sirimanbar/wtecoz/commit/4f06e64cd0ccfdbde3e062b7b887b29a21a46fab
+。
+九江市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日更新升级），点击查询：https://github.com/comitrithl/lviwgf/commit/aeb76a6321a64b4c03183d9654fc9b6e5913028f
+。
+喀什市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/neo1960/njtgxr/commit/f1ae5494e1dac3b3807305c3f448d3994ece28ac
+。
+开封市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新公布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/53626b5d9ec2368d94a6e2ef5e95b4bdf65d67cf
+。
+克拉玛市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/cee3b92e983c84344ef888bd03e57fb59460b7e6
+。
+垦利市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式上线），点击查询：https://github.com/mpedrosun/auryko/commit/2023fbc1c8f13a90e61cc6edf31f82c78485cc8b
+。
+昆明市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/comitrithl/lviwgf/commit/c331f03cc8f179a65a69a0ae1edb12f86e9c8db1
+。
+昆山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/neo1960/njtgxr/commit/7979198148bb7d8d2f446169bfd719a28cbb35e3
+。
+拉萨市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/alanxyzefr/rzhntq/commit/899d304d5db44b6e11139b5584aeba463d3ed314
+。
+来宾市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/mpedrosun/auryko/commit/f01a18972db54b97b68412b0eb078c6c8254ef1a
+。
+莱芜市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/cb3e495f25dc1e3161175a294fed5b2002146692
+。
+兰州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/neo1960/njtgxr/commit/bac9ab17f6172341f00dc2554a059213e8a35330
+。
+廊坊市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/comitrithl/lviwgf/commit/38ceccca07c7400f4d805df6e366aeef81083813
+。
+乐清市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式更新），点击查询：https://github.com/alanxyzefr/rzhntq/commit/18a525da307f28eaed6aa16f255d2178df6448c8
+。
+乐山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/b79631f3fbe3fcbaae919b3c477de67863707786
+。
+丽水市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/mpedrosun/auryko/commit/1368525e74ffa6f836b41fbd04e849de36c3a96a
+。
+连云港市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/neo1960/njtgxr/commit/925823bd766dfc1c01d3a7242789866e479c427f
+。
+凉山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/comitrithl/lviwgf/commit/40bd17680e90b07667302aa216ecc5f5ce9bf7c0
+。
+聊城市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/fe981dfeab289825d1e36e66e9b26a71e7e642fa
+。
+辽阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/ff7c7e73ee522d44dcba9c0dbbbf9a5c983439c2
+。
+临汾市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/mpedrosun/auryko/commit/d1cfdb48e2023faf341c396d95b6fe0259c150e1
+。
+临沂市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/neo1960/njtgxr/commit/0f2c824960837c9ea113fbea1fef36265c86d18a
+。
+六安市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/comitrithl/lviwgf/commit/024706d93fdaa118ecfcb4c0694ea08df4f9c510
+。
+柳州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/228f0feb60909c00877e3f9677dbfa74707ce658
+。
+龙岩市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/sirimanbar/wtecoz/commit/ab9ea418f5890e538d4800d42d637f0df0893f45
+。
+娄底市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/mpedrosun/auryko/commit/84bde57e9aa49fa3392452ccc01e9c444c66c690
+。
+洛阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/neo1960/njtgxr/commit/24e776f0f0e8bbddf2ee8b5ed1097d5159d41c91
+。
+马鞍山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/comitrithl/lviwgf/commit/aea3bffe308356cac8bbfbfcb82b198b0c98204e
+。
+茂名市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/121d074cce1555a6c4945853adccc29a576b026a
+。
+眉山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/mpedrosun/auryko/commit/8b35a82df9877244487c8ab21900c7b8c3c4eff7
+。
+梅州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/sirimanbar/wtecoz/commit/a1c12e274b677d9504d66f9c09f8ebbbf17803ec
+。
+绵阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/neo1960/njtgxr/commit/80c71dc841805aa246ab60aeb3934326e61b0263
+。
+明港市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/comitrithl/lviwgf/commit/5f79b9545ce6d64d700d54b74890b75fb7ac23ef
+。
+牡丹江市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/c29dc6f935b20f42746d1c2a6ffb3ac3cb45b25c
+。
+南安市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式上线），点击查询：https://github.com/mpedrosun/auryko/commit/519e0cd38d289ac93d2c5cbcbc737356727451b2
+。
+南昌市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/6645899844294324dbef4a3976528c16237d22f3
+。
+南充市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/neo1960/njtgxr/commit/aec420f66acd372d721a7ff6b982cd2f1c284db3
+。
+南京市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/comitrithl/lviwgf/commit/ee7c477aa06c2f1623d82acec678a54083da2078
+。
+南宁市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/417f0a9aa9a4ad660e21d582a63d702e18c49ece
+。
+南平市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布上线），点击查询：https://github.com/mpedrosun/auryko/commit/a1a52ed48964c4260a45b5089673f14434593af0
+。
+南通市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/2d2853718a1f792650b5270696f57a46b4a526d9
+。
+南阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/neo1960/njtgxr/commit/bb7ea874110be37aaacf85c02b78a161f55585b1
+。
+内江市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/comitrithl/lviwgf/commit/090fb2992241bd80be4d0ce96c77e837c4f3b9c2
+。
+宁波市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网升级），点击查询：https://github.com/alanxyzefr/rzhntq/commit/2099f76a8b87601c548f7184b6222dbc6866d9c4
+。
+宁德市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/mpedrosun/auryko/commit/b82f57f0485614add1b02100d28bbff59e544cfa
+。
+宁国市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/566a25faab36107d480609ab05f6258b0af2d0b6
+。
+盘锦市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/neo1960/njtgxr/commit/3aacf2ae0f39824de16f8e86da398f85dc34f73c
+。
+攀枝花市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布上线），点击查询：https://github.com/comitrithl/lviwgf/commit/114c90bf85acf335e81ce22f3ee56330128b2149
+。
+平顶山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/alanxyzefr/rzhntq/commit/cf7a04d8a838dfe99000f955c33b6b674b6711b4
+。
+萍乡市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/mpedrosun/auryko/commit/d30addebf6e146ddf00071a25a3f20d634ee44ca
+。
+莆田市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/3b14415fafda4050e26f20b73120164a6edcbc8b
+。
+启东市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/neo1960/njtgxr/commit/09d34486ad00a25832cf7f353e913e59c2d688b5
+。
+齐齐哈尔市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日更新升级），点击查询：https://github.com/comitrithl/lviwgf/commit/282c913e699cba8456f29d0d4b7ac067bddf45bf
+。
+潜江市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/alanxyzefr/rzhntq/commit/d771614a7a76b3edc0fd2c97d1690779663e853e
+。
+秦皇岛市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/c5caae17398811db6f53d7be5c40ea2da94d736e
+。
+钦州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/mpedrosun/auryko/commit/62d304756c32091032278efaddd5e7bc48e8b566
+。
+青岛市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/comitrithl/lviwgf/commit/c469b542677fcf6e9b2874c8ceeefe7b92e1aaf4
+。
+清远市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新公布），点击查询：https://github.com/neo1960/njtgxr/commit/456df0e73bbc271170bd5681e7f37380d318e0ab
+。
+曲靖市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/6d2379b9817e9ccd4b08dfe0dc8f029414ace79b
+。
+泉州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/a85158f3e0c7c0f9cb661c73ccc3d49b5c9af29f
+。
+日照市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/mpedrosun/auryko/commit/191aea0d881b989a843f4cbcd569a4082e36dd48
+。
+如东市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/comitrithl/lviwgf/commit/adfe0d2e2c163f5c390ea044155924abc81a7613
+。
+如皋市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/neo1960/njtgxr/commit/95e7a77ee18fbb7c3f0a6be7cae1549c909e92a1
+。
+瑞安市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/f7de5a673f920da9420c24d3f856f793db8aed8f
+。
+三门峡市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/sirimanbar/wtecoz/commit/f947d121580c3845adb7093c791826ca338a5c2a
+。
+三明市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/mpedrosun/auryko/commit/b1aa3d69ee374027ec16b921611075e2c7ca763a
+。
+三亚市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布上线），点击查询：https://github.com/comitrithl/lviwgf/commit/3269fdf6d46fa5796f394579c453737944697145
+。
+汕头市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/neo1960/njtgxr/commit/8f5fe824a23856660dc68a6aeb2f918b6803abf8
+。
+汕尾市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/67161911b431657fc6adecd60aaa7f6e39c4ab69
+。
+上海市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式上线），点击查询：https://github.com/sirimanbar/wtecoz/commit/111a58ad691159fb04a62c5a1e6730bc2724a45d
+。
+商丘市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/mpedrosun/auryko/commit/6bbcc638f372a5e70ebbf177df1382c2cd725263
+。
+上饶市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/comitrithl/lviwgf/commit/d5145529cabf912cf1806d13c63298f00c5c5471
+。
+韶关市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/neo1960/njtgxr/commit/137f8e2b34c5ca09aa876d50c6f655a391c77602
+。
+绍兴市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网升级），点击查询：https://github.com/alanxyzefr/rzhntq/commit/5911618a5cf65de69f43a09840c89076ef2b5c3e
+。
+邵阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/d1b467bf4b791e0003e88b051468c2f24331f04a
+。
+神农架市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式上线），点击查询：https://github.com/mpedrosun/auryko/commit/8ef51be06076aa1ffe82d31d7b5e178b8a4050d8
+。
+沈阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/comitrithl/lviwgf/commit/bb953efa2d92c6bb4c9d34c3ebb0bd838a715a01
+。
+深圳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/neo1960/njtgxr/commit/1517a06f8328e2fe278b9ff38821605d4653bdf7
+。
+石河子市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/alanxyzefr/rzhntq/commit/a6c052246e44f893ea8bf15a1390340c4d518d04
+。
+石家庄市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/sirimanbar/wtecoz/commit/3db992e2654bbe3f5014a68b548309302ac31df0
+。
+石狮市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/mpedrosun/auryko/commit/6bf663edbbe22eb4546b4e928b0c944490be0e78
+。
+十堰市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/comitrithl/lviwgf/commit/69ef769321bc1b28745bd7c695c0fffa1a50a139
+。
+寿光市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/neo1960/njtgxr/commit/85acd2712e9bdd5c50e4c2527e0dd47da2470df0
+。
+顺德市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/244f4151ea46034fa4743cf9f2bb019bcfcec29f
+。
+四平市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日更新升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/3cbdeedbe7ac21da56299d438d508df59a18e2e2
+。
+宿迁市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式更新），点击查询：https://github.com/mpedrosun/auryko/commit/ff26c5d5178430041d4115b8bbea198695c3fe6d
+。
+苏州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/comitrithl/lviwgf/commit/29f86ed33bdfdd196c96ad7f4f9ca5e0e2237a34
+。
+宿州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/neo1960/njtgxr/commit/d4f4712427be7d5d984733ced5dddb79998de8e2
+。
+遂宁市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/alanxyzefr/rzhntq/commit/91b4608d94e9a9262303ef94ea2b4bc65c9e6049
+。
+随州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/38a62c2c221eb37e57a4f1a45dd6cfd6418517bd
+。
+泰安市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/mpedrosun/auryko/commit/58022819bed9a5367f82742f449c2cfc8466155b
+。
+台山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/comitrithl/lviwgf/commit/6485560a4d3475c65ba93144d80dfa503cf8caa5
+。
+泰兴市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/neo1960/njtgxr/commit/7ee75bbb31b96302c525fac49d459e8ec98dbf6f
+。
+太原市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/ec61cd39b50e80886b5013f6dee8522cd5a5620a
+。
+泰州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/b89134bc2e6c310a0306191b24bac52f36171aec
+。
+唐山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/mpedrosun/auryko/commit/1f6f5cc38fba38800b1f75652075eb388905932e
+。
+天长市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网升级），点击查询：https://github.com/comitrithl/lviwgf/commit/d58c23244e70d5a26d76595a82ddf45c3c88121e
+。
+天津市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/neo1960/njtgxr/commit/1ae7a0f989233ba8f1d37c20168cd38a622d99e2
+。
+天门市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/alanxyzefr/rzhntq/commit/7448337af6685df7b31e0dd7db635b2cd0b1722a
+。
+天水市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/sirimanbar/wtecoz/commit/fa9959f3a86293273798fae213ac1a6e50d482a8
+。
+铁岭市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式更新），点击查询：https://github.com/comitrithl/lviwgf/commit/201e0973c6bcb18db21f6fc9de12d21df682d34f
+。
+桐城市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/mpedrosun/auryko/commit/e90b7ec8ae90421f11e855015cfa22a90d8d5717
+。
+铜川市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式上线），点击查询：https://github.com/neo1960/njtgxr/commit/a9d816f2b686dfd78228b8e781931628997c9102
+。
+铜陵市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新推出），点击查询：https://github.com/alanxyzefr/rzhntq/commit/5885c160e88cf5a45a81b43ed3fee2e7649c7415
+。
+桐乡市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/aeaec9f15b2264bd6721b0d92d8c89cf25c213f1
+。
+瓦房店市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/comitrithl/lviwgf/commit/3fd28cff0bc577eb6eac71412a7453997b343020
+。
+潍坊市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/mpedrosun/auryko/commit/dd0f2238a12a8ab909bfcdbcc4f7b4616c726c99
+。
+威海市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式上线），点击查询：https://github.com/neo1960/njtgxr/commit/5414bf5a80fe4792602dcb2a962fe6d810cfbd1d
+。
+温岭市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/0d561265a497540b01d80e623527521a8b019c4b
+。
+温州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/sirimanbar/wtecoz/commit/92744288251036497ed99ea15bafb5dfc923d2f5
+。
+武汉市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布上线），点击查询：https://github.com/comitrithl/lviwgf/commit/6b97854c67b2c9631da795dab409058987c9b308
+。
+芜湖市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式更新），点击查询：https://github.com/mpedrosun/auryko/commit/c31beb7f963eb751684a7d13bfb91fb1b21d2539
+。
+乌鲁木齐市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式上线），点击查询：https://github.com/neo1960/njtgxr/commit/8664366bc5f1cec7f6bf594bf98e36a8ccd0112a
+。
+无锡市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/alanxyzefr/rzhntq/commit/021484d81c90ac5fa62c349cdbc451f66370669e
+。
+武夷山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/sirimanbar/wtecoz/commit/d3400cd08d7df0f84f066fd1fba6376b14c9c7d0
+。
+梧州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布上线），点击查询：https://github.com/mpedrosun/auryko/commit/29530c46b2835b3279a3af6f5bd6394e9bfa67fd
+。
+西安市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/comitrithl/lviwgf/commit/168f0ff9dc2e9a1df43e6f64946a51d58711e807
+。
+西宁市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日更新升级），点击查询：https://github.com/neo1960/njtgxr/commit/8870890c4a853706726ca6fd0d78d7882ee88d03
+。
+厦门市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/alanxyzefr/rzhntq/commit/6c9d0d3bbb59cb55b2ef396df0c777767b7ba268
+。
+咸宁市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/sirimanbar/wtecoz/commit/e91a88fed498a32d72905f09fc96b7c93ca13cbb
+。
+仙桃市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/comitrithl/lviwgf/commit/8d17a388fba2605f6dc27498b05d919958925144
+。
+咸阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新公布），点击查询：https://github.com/mpedrosun/auryko/commit/440e809ca610ccf1f1a9f4fe10b39d373131cce2
+。
+襄樊市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/neo1960/njtgxr/commit/a422627422fbc08e3712abef4f98fff0193f1c0f
+。
+象山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/alanxyzefr/rzhntq/commit/cbd6d4bd5c967724cdc751763464765081285764
+。
+湘潭市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/sirimanbar/wtecoz/commit/0c8a538990da1f5e970e263cc7bea20972e85633
+。
+湘西市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/comitrithl/lviwgf/commit/5dab2434335952ee69547376908659201c9ca455
+。
+襄阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/mpedrosun/auryko/commit/5cc1f5672a2d51932dae1662e4eb4b83202011d0
+。
+孝感市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/neo1960/njtgxr/commit/a68c6dcff873c789349a6c7069186fd978036f2a
+。
+萧山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网升级），点击查询：https://github.com/alanxyzefr/rzhntq/commit/c2a0311aa11543a34c4bdd4c1bee2feada02e0a9
+。
+新乡市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/68b54e31188a7b7a1eb37012716ef78e05e76cbd
+。
+信阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/mpedrosun/auryko/commit/89b17cd68a6ec9e98ff7f4d73e8b996ea6f918dd
+。
+新沂市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网升级），点击查询：https://github.com/comitrithl/lviwgf/commit/fef5f4aae789e60dc04298ecac05f5be95350133
+。
+新余市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/neo1960/njtgxr/commit/25e3ffe36116f20f9b68a908e26ee08f69a3ae90
+。
+兴化市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新推出），点击查询：https://github.com/alanxyzefr/rzhntq/commit/61c6ed706224f1b62a92eb6399decf7614b1f3b6
+。
+邢台市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新推出），点击查询：https://github.com/mpedrosun/auryko/commit/65cd4b50578175c987d6d40f4c24a45c6e2149e6
+。
+许昌市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/comitrithl/lviwgf/commit/1cbb1cb56d7178a65a6e14dbc845603844992b84
+。
+徐州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/sirimanbar/wtecoz/commit/ba3c7b786474e64f4c0e4309778362108b2660a1
+。
+宣城市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布上线），点击查询：https://github.com/neo1960/njtgxr/commit/a6a4ad9604bfc3e23fc453b209fd7e8125876e8a
+。
+雅安市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/alanxyzefr/rzhntq/commit/d9b146c95d04b742ab3b8c73a36a5ab74a145f18
+。
+延安市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/mpedrosun/auryko/commit/0ba2cd44e946142737c87eec958e26ca7a0e9b0f
+。
+盐城市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/comitrithl/lviwgf/commit/298d6a8836a57c6d88bac5f2e739013301c66674
+。
+烟台市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/e3086be669899c2a50ca6a4252aaff05ff16f00e
+。
+阳春市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/neo1960/njtgxr/commit/b6cef7764a6390146446c6e78e280e97e3463662
+。
+阳江市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/83663b87b1da55a366c4d33d0638defb9921a3c1
+。
+阳泉市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/mpedrosun/auryko/commit/0d0c39e84c7c7fbcca96afef7db2a69dbc97c52b
+。
+扬中市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/comitrithl/lviwgf/commit/15f6388273cb2b573ce4a1f1ce8377326e622c8d
+。
+扬州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/sirimanbar/wtecoz/commit/e094578944dbdb588143aa65fe4ad93eda4b43e9
+。
+宜宾市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/neo1960/njtgxr/commit/d50504f08540bf2a3376294c82b3f24f1f6ef0a1
+。
+宜昌市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/alanxyzefr/rzhntq/commit/d007a392c90bd22863f947c5413b93c86fc07363
+。
+宜春市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/mpedrosun/auryko/commit/8e8091f40e28614cc44e35bd0304ec3c787eb640
+。
+宜都市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日更新升级），点击查询：https://github.com/comitrithl/lviwgf/commit/40c3608380f02bd42a420bf501d76ec48fee362d
+。
+义乌市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/sirimanbar/wtecoz/commit/cbf3e40204a58041d35c01b1c056cd6f7693f44b
+。
+宜兴市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/neo1960/njtgxr/commit/33fad6bab77a949b1feae46873d6752c9b44845d
+。
+益阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/9aa853f4097008dff48becfaa2fb86483c5278a2
+。
+银川市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/mpedrosun/auryko/commit/2fca153cc41ef9d09a419219e6fd7da837344efe
+。
+营口市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/comitrithl/lviwgf/commit/4c7a9fe23a0a063248927f4b0d34340d27fe1568
+。
+鹰潭市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日更新升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/68ccf49156098f730ab3a6370a0ca3af5e91784e
+。
+永新市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网更新），点击查询：https://github.com/neo1960/njtgxr/commit/80f410bce03ed127c4e89f70cd03c416c190a33c
+。
+永州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/alanxyzefr/rzhntq/commit/9684112d0f0055f2eb9fa967272720bb34bc4c86
+。
+榆林市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/mpedrosun/auryko/commit/d82b541a89e23fa14c1f11969818303ff35b4e1f
+。
+玉林市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/comitrithl/lviwgf/commit/31c62d12eeb11024fdd60f130a7f980b94c2b9bf
+。
+玉溪市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/sirimanbar/wtecoz/commit/59ea2e71dcb25d69e34196128b4fe57afa12db6c
+。
+余姚市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/neo1960/njtgxr/commit/c278b647b4df73904ef99c25d175bd31c35832bf
+。
+禹州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/fa841dab6f1910f852272b3231b80866d7890684
+。
+岳阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/mpedrosun/auryko/commit/402114cce798ed381fd80ca974f0cdbcab07e588
+。
+云浮市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/comitrithl/lviwgf/commit/cbe35f277c52a925df01c20e8cf74de83c7b1821
+。
+枣庄市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日公布升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/c42e2283f80aff045e695a9fcb3fe346d81fc484
+。
+湛江市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/neo1960/njtgxr/commit/1158498d3a543fa6a476968d897794a4b37b35c6
+。
+张家界市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式上线），点击查询：https://github.com/alanxyzefr/rzhntq/commit/91d5d451b407d361fbdebddafacd33ae22e0bb55
+。
+张家口市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/mpedrosun/auryko/commit/c7b75c1b1934d4fa65970744069f4cdbaabf4af2
+。
+章丘市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新推出），点击查询：https://github.com/comitrithl/lviwgf/commit/769e089def61e22d25ad604abba80b892de61dba
+。
+漳州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/sirimanbar/wtecoz/commit/789248bb1d0ff02efb4b19edf65fea4e2431f9ef
+。
+肇庆市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/neo1960/njtgxr/commit/107e7b41b2ca976b9fb36e46a11e5e2c4e8598f1
+。
+镇江市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式发布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/38677a0c4ecdf4249f62435c6dbda88b3847b249
+。
+郑州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一更新），点击查询：https://github.com/mpedrosun/auryko/commit/378d1e9c84536a36ba2bc39994a056862f757ac5
+。
+重庆市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/comitrithl/lviwgf/commit/5457713306eeb8b1ec528c1966267feb62e85067
+。
+中山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/sirimanbar/wtecoz/commit/5da19278024dee0bb6e17be4da2e0478da92edcf
+。
+周口市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/neo1960/njtgxr/commit/711f2fca5030c809e1b291150974e17e3c7c8e66
+。
+舟山市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新推出），点击查询：https://github.com/alanxyzefr/rzhntq/commit/e7550765e2f301f671cc66d9995acf5e3cac2cf7
+。
+诸城市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/comitrithl/lviwgf/commit/ce8ce82904c812e924b63beabfdd972bea3a9cc2
+。
+珠海市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网升级），点击查询：https://github.com/mpedrosun/auryko/commit/de5d6c101653f5a50e787053d66cae35466817cd
+。
+株洲市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网发布），点击查询：https://github.com/sirimanbar/wtecoz/commit/8b9ac7e3c6fa5b72caae02a103d80c20e3edb2d2
+。
+诸暨市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/neo1960/njtgxr/commit/c91403421f9a5ea08c44215d204bc39e71a07b54
+。
+庄河市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/alanxyzefr/rzhntq/commit/5decf4a816bc5a18e54cff05cadd8be30511c64e
+。
+自贡市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一发布），点击查询：https://github.com/mpedrosun/auryko/commit/722df654294c57991ab59988437682b16a1dc994
+。
+资阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/comitrithl/lviwgf/commit/7e0e56d8a396d493cbf0e88b98cfc6df1a9e059c
+。
+遵义市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一升级），点击查询：https://github.com/sirimanbar/wtecoz/commit/2bf6f2485b951770a59edbd5997e4a1353898828
+。
+漯河市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日最新更新），点击查询：https://github.com/neo1960/njtgxr/commit/8cbf58bf88eaba2145c57c6fb86f35898bf820dd
+。
+鄢陵市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新公布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/54d6bfb2049e9bf52088338ef0c16b172feadf11
+。
+沭阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日统一上线），点击查询：https://github.com/mpedrosun/auryko/commit/452ceb9b54bf0bd6347818021a36632d0119a57c
+。
+濮阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网上线），点击查询：https://github.com/comitrithl/lviwgf/commit/198ed5fbac0dc53fa12333e1cd1d595c7feeff52
+。
+溧阳市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式推出），点击查询：https://github.com/sirimanbar/wtecoz/commit/09ed65119e0a1df833d87c2dce8e4307157ffa19
+。
+泸州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/neo1960/njtgxr/commit/554b17a0047048088390def4b0713dbc4948e8a0
+。
+衢州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日官网公布），点击查询：https://github.com/alanxyzefr/rzhntq/commit/88a217ff6ddd6ae17b59edee05a035136486c7bb
+。
+亳州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日全新升级），点击查询：https://github.com/comitrithl/lviwgf/commit/376ba92315d5c80cfa1088255b71a6bf119fcbb4
+。
+邳州市深圳TCL空调售后服务电话：400 -960 -9605（2026年07月03日正式更新），点击查询：https://github.com/mpedrosun/auryko/commit/56588ccc2c2953265e1aaf0e47282645bd5336bc
+。
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年07月03日15时21分25秒
+来源：https://github.com/neo1960/njtgxr/commit/f7af96801e3686a561888323f6ae12ecaf2d5109
+
+来源：https://github.com/sirimanbar/wtecoz/commit/4ee6d0bf9d1f78429568b7e6c419a0c6de415169
+
+来源：https://github.com/alanxyzefr/rzhntq/commit/bacc03cb7b7dfbb601e3a6e2942ec7ce81dbd366
+
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年07月03日，15时21分25秒
